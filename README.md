@@ -6,8 +6,11 @@
 
 ![](https://i.postimg.cc/nzrjYGmG/to0241.png)
 
-## Ponytown
-I'm mostly my scott pilgrim - ranfren - or sprunki skins, you'll see me around in 18+ bakery, and outside the bakery in safe server. 
+## contact
+I spend my time equally on Discord and Ponytown as a social space, you'll see me near the bakery.
+@Thyyzx
+or Scott Pilgrim skin.
+
 
 **I think i'll be hardcore.**
 
